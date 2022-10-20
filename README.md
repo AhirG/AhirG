@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AhirG
 - 👀 I’m interested in music, math, coding and game development
-- 🌱 I’m currently learning anything I can get my hands on!
+- 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on musical projects
 - 📫 Contact me at ahirananda@gmail.com
 
